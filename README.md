@@ -64,7 +64,7 @@ I've been with **RegalBit Solutions** since 2017, and I've freelanced on Upwork 
 
 ## 📫 Get in touch
 
-- **LinkedIn:** [your LinkedIn URL](https://www.linkedin.com/in/YOUR-PROFILE)
+- **UpWork Profile:** [Arvind Verma]([https://www.linkedin.com/in/YOUR-PROFILE](https://www.upwork.com/freelancers/~01acfe4bc5ff805def))
 - **Email:** [arvindeng.verma@gmail.com](mailto:arvindeng.verma@gmail.com)
 - **Company:** [regalbit.com](https://regalbit.com)
 
